@@ -117,7 +117,7 @@ akia on gatari osu skins poggers
 ![](https://i.imgur.com/n8fQOWB.png)
 
 # [twitter skin](https://drive.google.com/open?id=1ORmpBBZ8Oa3vWAdJGaXvaKKIS9hTz1fZ)
-![](
+![](https://osu.ppy.sh/ss/14420055/2499)
 
 # [bird sprite](https://t.co/GaUeWIj04q?amp=1)
 ![](https://osu.ppy.sh/ss/14370478/24b0) 
