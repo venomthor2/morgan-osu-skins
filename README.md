@@ -77,7 +77,7 @@ akia on gatari osu skins poggers
 # [outbreak](https://s.put.re/DRaUjY99.osk)
 ![](https://i.imgur.com/bOnfM6c.png)
 
-# [pallete gamma liveplay](https://s.put.re/g3kfEP32.osk)
+# [palette gamma liveplay](https://s.put.re/g3kfEP32.osk)
 ![](https://i.imgur.com/YOFKy1w.png)
 
 # [sakura no zenya](https://drive.google.com/file/d/1dKTqdCEFZYwfEozV0ztU0Mvf3kjR_Kc-/view)
@@ -121,6 +121,9 @@ akia on gatari osu skins poggers
 
 # [bird sprite](https://t.co/GaUeWIj04q?amp=1)
 ![](https://osu.ppy.sh/ss/14370478/24b0) 
+
+# [rinne](https://files.catbox.moe/3o2wl1.osk)
+![](https://i.imgur.com/Hu4UEUs.png)
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
