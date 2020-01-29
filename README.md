@@ -125,6 +125,9 @@ akia on gatari osu skins poggers
 # [rinne](https://files.catbox.moe/3o2wl1.osk)
 ![](https://i.imgur.com/Hu4UEUs.png)
 
+# [better morgan skin remake credit: u/LegitDiamond](https://www.dropbox.com/s/85iexzlauh8339o/Morgan%20Skin%20Remake%20With%20SD.osk?dl=0)
+![](https://osu.ppy.sh/ss/14425075/7eda)
+
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
 also please unblock me on twitter morgan 
