@@ -113,8 +113,8 @@ akia on gatari osu skins poggers
 # [spark of the archon](https://circle-people.com/wp-content/Skins/Aireu%20(lain)/Aireu%202019-11-20.osk) 
 ![](https://imgur.com/gHcHPHT)
 
-# [sendan life](https://s.put.re/eJo8fNJz.osk)
-![](https://i.imgur.com/n8fQOWB.png)
+# [sendan life](https://files.catbox.moe/6150kp.osk)
+![](https://i.imgur.com/AGjyoCp.png)
 
 # [twitter skin](https://drive.google.com/open?id=1ORmpBBZ8Oa3vWAdJGaXvaKKIS9hTz1fZ)
 ![](https://osu.ppy.sh/ss/14420055/2499)
