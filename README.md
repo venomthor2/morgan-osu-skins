@@ -9,7 +9,7 @@ akia on gatari osu skins poggers
 ![](https://osu.ppy.sh/ss/14096660/e821)
 
 # ~~[morgan but fyre](https://morgan.s-ul.eu/LyX39Wqy) or [fyree (orange cursor)](https://cdn.discordapp.com/attachments/644258437735251988/644259799852122122/fyree.osk)~~ [original one](https://files.catbox.moe/qnqieb.osk)
-![](https://osu.ppy.sh/ss/14110244/ecca)
+![](https://osu.ppy.sh/ss/14454795/597f)
 
 # [Reira+Neil morgan](https://morgan.s-ul.eu/v0UFDMSu) thank u wandarerzeroonezerothree (thanks alot u/Wonderer0103) 
 ![](https://osu.ppy.sh/ss/14110711/f410)
