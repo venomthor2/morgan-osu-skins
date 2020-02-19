@@ -130,11 +130,11 @@ akia on gatari osu skins poggers
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
-also please unblock me on twitter morgan 
+also please unblock me on twitter morgan (update: actually keep me blocked)
 
 my discord: venomthor2#7999
 thanks alot u/Wonderer0103 for most of the skins i recently added thank you alot 
-
+just wanting to say that im not the only one to remake the skins just because my discord or the link has my name on it does not mean im the person who put all the skins i put some of them not all of them 
 
 
 
