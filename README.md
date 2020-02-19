@@ -131,6 +131,8 @@ akia on gatari osu skins poggers
 # [hime hime](https://www.mediafire.com/file/tqafggcq7tkiezk/-_elohere_morgan_edit.osk/file)
 ![](https://osu.ppy.sh/ss/14511163/ada4)
 
+# [salvation](https://www.mediafire.com/file/p1h1dt037km8tux/-_Lines_morgan_edit.osk/file)
+![](https://osu.ppy.sh/ss/14511228/e994)
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
 also please unblock me on twitter morgan (update: actually keep me blocked)
