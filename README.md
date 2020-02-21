@@ -133,6 +133,12 @@ akia on gatari osu skins poggers
 
 # [salvation](https://www.mediafire.com/file/p1h1dt037km8tux/-_Lines_morgan_edit.osk/file)
 ![](https://osu.ppy.sh/ss/14511228/e994)
+
+# [morgan (flor) private skin omg](https://wonderer.s-ul.eu/yJ5l6HvX)
+![](https://osu.ppy.sh/ss/14517335/72b8)
+
+# [inferno](https://wonderer.s-ul.eu/RX027G0n)
+![](https://osu.ppy.sh/ss/14517334/4020)
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
 also please unblock me on twitter morgan (update: actually keep me blocked)
