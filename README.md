@@ -142,6 +142,11 @@ akia on gatari osu skins poggers
 
 # [dramatic cycle](https://suckydongdong.s-ul.eu/e5l2l6LG)
 ![](https://osu.ppy.sh/ss/14526957/e354)
+
+# [silhouette](http://puu.sh/maJep/4b2f93f57b.zip)
+![]()
+
+
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
 also please unblock me on twitter morgan (update: actually keep me blocked)
