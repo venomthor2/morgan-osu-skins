@@ -146,6 +146,9 @@ akia on gatari osu skins poggers
 # [silhouette](http://puu.sh/maJep/4b2f93f57b.zip)
 ![]()
 
+# [stella-rium](https://www.mediafire.com/file/3vfm5lhxhdu6cmv/-_morgan_stellarium.osk/file)
+![](https://osu.ppy.sh/ss/14576207/9d91)
+
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
@@ -155,5 +158,7 @@ my discord: venomthor2#7999
 thanks alot u/Wonderer0103 for most of the skins i recently added thank you alot 
 just wanting to say that im not the only one to remake the skins just because my discord or the link has my name on it does not mean im the person who put all the skins i put some of them not all of them 
 
+
+also if some skins that are easy to remake its cuz me (venomthor2) is not remaking due to extreme lazyness 
 
 
