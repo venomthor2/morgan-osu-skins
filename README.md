@@ -149,6 +149,9 @@ akia on gatari osu skins poggers
 # [stella-rium](https://www.mediafire.com/file/3vfm5lhxhdu6cmv/-_morgan_stellarium.osk/file)
 ![](https://osu.ppy.sh/ss/14576207/9d91)
 
+# [haruoto](https://www.mediafire.com/file/loh3rfmd41ph3e0/-_most_ez_remake_i_ever_done_wow.osk/file)
+![](https://osu.ppy.sh/ss/14576270/3aa7)
+
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
