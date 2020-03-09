@@ -144,7 +144,7 @@ akia on gatari osu skins poggers
 ![](https://osu.ppy.sh/ss/14526957/e354)
 
 # [silhouette](http://puu.sh/maJep/4b2f93f57b.zip)
-![]()
+![](https://i.imgur.com/IuJ5OG3.png)
 
 # [stella-rium](https://www.mediafire.com/file/3vfm5lhxhdu6cmv/-_morgan_stellarium.osk/file)
 ![](https://osu.ppy.sh/ss/14576207/9d91)
@@ -156,7 +156,7 @@ akia on gatari osu skins poggers
 ![](https://osuskins.net/screenshots/LkgjnrR.jpg)
 
 # [m'aider](https://www.dropbox.com/s/l76gymjrn59p4xv/army.zip?dl=1)
-![]()
+![](https://i.imgur.com/IdNUJh5.png)
 
 
 
