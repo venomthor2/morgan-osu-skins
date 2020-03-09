@@ -152,7 +152,7 @@ akia on gatari osu skins poggers
 # [haruoto](https://www.mediafire.com/file/loh3rfmd41ph3e0/-_most_ez_remake_i_ever_done_wow.osk/file)
 ![](https://osu.ppy.sh/ss/14576270/3aa7)
 
-# [idk whats the vid but too lazy to check out](https://osuskins.net/skin/LkgjnrR)
+# [infinite sky](https://osuskins.net/skin/LkgjnrR)
 ![](https://osuskins.net/screenshots/LkgjnrR.jpg)
 
 # [m'aider](https://www.dropbox.com/s/l76gymjrn59p4xv/army.zip?dl=1)
