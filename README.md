@@ -155,6 +155,10 @@ akia on gatari osu skins poggers
 # [idk whats the vid but too lazy to check out](https://osuskins.net/skin/LkgjnrR)
 ![](https://osuskins.net/screenshots/LkgjnrR.jpg)
 
+# [m'aider](https://www.dropbox.com/s/l76gymjrn59p4xv/army.zip?dl=1)
+![]()
+
+
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
