@@ -38,7 +38,7 @@ akia on gatari osu skins poggers
 # [rafis elohere](https://skins.osuck.net/index.php?newsid=164)
 ![](https://i.imgur.com/CodCQkm.png)
 
-# [smh](https://s.put.re/6NeeBXHD.osk)
+# [smh](https://www.dropbox.com/s/rphc742rg4xc85l/smh.rar?dl=1)
 ![](https://i.imgur.com/OQAiSos.png)
 
 # [green skin](http://puu.sh/DFB0K/faeb561091.osk)
