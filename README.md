@@ -167,6 +167,8 @@ akia on gatari osu skins poggers
 # [star map remake](https://www.mediafire.com/file/uwdm37e99t1u9g4/-_morgan_star_map_.osk/file)
 ![](https://osu.ppy.sh/ss/14706758/fd73)
 
+# [seiken nante iranai](http://puu.sh/FtLE3/314702592d.osk)
+![](https://osu.ppy.sh/ss/14723989/96e1)
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
