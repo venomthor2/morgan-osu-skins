@@ -170,6 +170,9 @@ akia on gatari osu skins poggers
 # [seiken nante iranai](http://puu.sh/FtLE3/314702592d.osk)
 ![](https://osu.ppy.sh/ss/14723989/96e1)
 
+# [general tso what](https://files.catbox.moe/kxvd8q.osk)
+![](https://osu.ppy.sh/ss/14724067/139f)
+
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
 also please unblock me on twitter morgan (update: actually keep me blocked)
