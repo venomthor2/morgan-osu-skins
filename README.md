@@ -137,7 +137,7 @@ akia on gatari osu skins poggers
 # [morgan (flor) private skin omg](https://wonderer.s-ul.eu/yJ5l6HvX)
 ![](https://osu.ppy.sh/ss/14517335/72b8)
 
-# [inferno](https://wonderer.s-ul.eu/RX027G0n)
+# [inferno](https://www.reddit.com/r/OsuSkins/comments/f6jck3/std_hdsd_gothic_lolita_fever_inspired_by_the/)
 ![](https://osu.ppy.sh/ss/14517334/4020)
 
 # [dramatic cycle](https://suckydongdong.s-ul.eu/e5l2l6LG)
