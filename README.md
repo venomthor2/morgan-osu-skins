@@ -174,7 +174,7 @@ akia on gatari osu skins poggers
 ![](https://osu.ppy.sh/ss/14724067/139f)
 
 # [max love](http://puu.sh/DBGjQ/d8afc09894.osk)
-![](https://camo.githubusercontent.com/f6228279b8cdfd1a71e3236cae0523728cfc43a8/68747470733a2f2f6f73752e7070792e73682f73732f3133333134313239)
+![](https://osu.ppy.sh/ss/13314129)
 
 
 # [sakura reincarnation](https://cdn.discordapp.com/attachments/427214130756452353/697696460267061319/boop.osk)
