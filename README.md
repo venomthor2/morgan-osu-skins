@@ -173,8 +173,8 @@ akia on gatari osu skins poggers
 # [general tso what](https://files.catbox.moe/kxvd8q.osk)
 ![](https://osu.ppy.sh/ss/14724067/139f)
 
-# [max love](https://skins.osuck.net/index.php?newsid=1298)
-![](https://skins.osuck.net/uploads/posts/2020-03/1584189023_screenshot8185.jpg)
+# [max love](http://puu.sh/DBGjQ/d8afc09894.osk)
+![](https://camo.githubusercontent.com/f6228279b8cdfd1a71e3236cae0523728cfc43a8/68747470733a2f2f6f73752e7070792e73682f73732f3133333134313239)
 
 
 # [sakura reincarnation](https://cdn.discordapp.com/attachments/427214130756452353/697696460267061319/boop.osk)
