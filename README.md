@@ -180,6 +180,9 @@ akia on gatari osu skins poggers
 # [sakura reincarnation](https://cdn.discordapp.com/attachments/427214130756452353/697696460267061319/boop.osk)
 ![](https://osu.ppy.sh/ss/14733957/6cce)
 
+# [kurui zake setsugekka](https://www.dropbox.com/s/vsqt0s5gq5nahoy/boom%200524%20edit.osk?dl=1)
+someone add screenshots
+
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
 
