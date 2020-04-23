@@ -181,9 +181,9 @@ akia on gatari osu skins poggers
 ![](https://osu.ppy.sh/ss/14733957/6cce)
 
 # [kurui zake setsugekka](https://www.dropbox.com/s/vsqt0s5gq5nahoy/boom%200524%20edit.osk?dl=1)
-someone add screenshots
+![](https://osu.ppy.sh/ss/14805306/1b05)
 
-# [twitter skin part ](https://www.dropbox.com/s/w4etxl9p0ta7agn/-%20%2B%20santa%20monica.osk?dl=0)
+# [twitter skin part 3](https://www.dropbox.com/s/w4etxl9p0ta7agn/-%20%2B%20santa%20monica.osk?dl=0)
 ill add it later and i hope i dont forget
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
