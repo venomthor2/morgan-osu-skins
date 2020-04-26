@@ -185,7 +185,7 @@ akia on gatari osu skins poggers
 
 # [twitter skin part 3](https://www.dropbox.com/s/w4etxl9p0ta7agn/-%20%2B%20santa%20monica.osk?dl=0)
 
-# [twitter skin part 4 [thanks @14160 on  twitter for the skin)](https://t.co/xXjDEkCP6X?amp=1)
+# [twitter skin part 4 (thanks @14160 on  twitter for the skin)](https://t.co/xXjDEkCP6X?amp=1)
 
 
 
