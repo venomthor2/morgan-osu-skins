@@ -184,9 +184,10 @@ akia on gatari osu skins poggers
 ![](https://osu.ppy.sh/ss/14805306/1b05)
 
 # [twitter skin part 3](https://www.dropbox.com/s/w4etxl9p0ta7agn/-%20%2B%20santa%20monica.osk?dl=0)
+![](https://osu.ppy.sh/ss/14820344/56e3)
 
 # [twitter skin part 4 (thanks @14160 on  twitter for the skin)](https://t.co/xXjDEkCP6X?amp=1)
-
+![](https://osu.ppy.sh/ss/14820334/8779)
 
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
