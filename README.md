@@ -189,6 +189,8 @@ akia on gatari osu skins poggers
 # [twitter skin part 4 (thanks @14160 on  twitter for the skin)](https://t.co/xXjDEkCP6X?amp=1)
 ![](https://osu.ppy.sh/ss/14820334/8779)
 
+# [thanks for the skin fembo... i mean morgan](https://drive.google.com/file/d/1lveszkbHqJ6EuVFlF5-4cpC1727-r-Qt/view)
+![](https://osu.ppy.sh/ss/14905449/6416)
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
