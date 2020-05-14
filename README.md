@@ -89,7 +89,7 @@ akia on gatari osu skins poggers
 # [love your enemies](https://www.mediafire.com/file/1yvl862rv3s2r0j/morgan_remake_updated.osk/file)
 ![](https://i.imgur.com/MgLVz9V.png)
 
-# [versace summer (updated reverse arrow and mod icons)](https://s.put.re/otQ6gVWq.osk)
+# [versace summer original one thx slushy](https://www.dropbox.com/s/41r2y1dui7d39x2/tko%20morgan.osk?dl=1)
 ![](https://i.imgur.com/iay8wOm.png)
 
 # [versace summer but not remake(thanks dt worst mode on discord for reverse arrow)](https://www.mediafire.com/file/sfse914qnw2ifq9/-+_morgan+tko_blue.osk/file)
