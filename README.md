@@ -113,7 +113,7 @@ akia on gatari osu skins poggers
 # [spark of the archon](https://circle-people.com/wp-content/Skins/Aireu%20(lain)/Aireu%202019-11-20.osk) 
 ![](https://imgur.com/gHcHPHT)
 
-# [sendan life](https://files.catbox.moe/6150kp.osk)
+# [sendan life](https://asdfasdfasdf.s-ul.eu/OO0eBdA5)
 ![](https://i.imgur.com/AGjyoCp.png)
 
 # [twitter skin](https://drive.google.com/open?id=1ORmpBBZ8Oa3vWAdJGaXvaKKIS9hTz1fZ)
@@ -122,7 +122,7 @@ akia on gatari osu skins poggers
 # [bird sprite](https://t.co/GaUeWIj04q?amp=1)
 ![](https://osu.ppy.sh/ss/14370478/24b0) 
 
-# [rinne](https://files.catbox.moe/3o2wl1.osk)
+# [rinne](https://asdfasdfasdf.s-ul.eu/mn0qLlDT)
 ![](https://i.imgur.com/Hu4UEUs.png)
 
 # [better morgan skin remake credit: u/LegitDiamond](https://www.dropbox.com/s/85iexzlauh8339o/Morgan%20Skin%20Remake%20With%20SD.osk?dl=0)
@@ -143,7 +143,7 @@ akia on gatari osu skins poggers
 # [dramatic cycle](https://suckydongdong.s-ul.eu/e5l2l6LG)
 ![](https://osu.ppy.sh/ss/14526957/e354)
 
-# [silhouette](http://puu.sh/maJep/4b2f93f57b.zip)
+# [silhouette](https://asdfasdfasdf.s-ul.eu/rtCz5khK)
 ![](https://i.imgur.com/IuJ5OG3.png)
 
 # [stella-rium](https://www.mediafire.com/file/3vfm5lhxhdu6cmv/-_morgan_stellarium.osk/file)
@@ -170,7 +170,7 @@ akia on gatari osu skins poggers
 # [seiken nante iranai](http://puu.sh/FtLE3/314702592d.osk)
 ![](https://osu.ppy.sh/ss/14723989/96e1)
 
-# [general tso what](https://files.catbox.moe/kxvd8q.osk)
+# [general tso what](https://asdfasdfasdf.s-ul.eu/xSoaq5zr)
 ![](https://osu.ppy.sh/ss/14724067/139f)
 
 # [max love](http://puu.sh/DBGjQ/d8afc09894.osk)
