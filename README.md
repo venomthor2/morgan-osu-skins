@@ -196,7 +196,7 @@ akia on gatari osu skins poggers
 ![](https://osu.ppy.sh/ss/14941804/674b)
 
 # [winter diamond](https://asdfasdfasdf.s-ul.eu/EMw5RKNH)
-![]()
+![](https://osu.ppy.sh/ss/14941863/23be)
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
