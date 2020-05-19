@@ -26,8 +26,8 @@ akia on gatari osu skins poggers
 # [kune skin](http://www.mediafire.com/file/7ffd7h7opdgxpeg/kune259_160601.osk/file)
 ![](https://i.imgur.com/iwvuZos.png)
 
-# [toke skin](https://t.co/NgxuMMK6V5?amp=1)
-![](https://i.imgur.com/05p7hax.png)
+# [toke skin](https://asdfasdfasdf.s-ul.eu/52AOLdo6)
+![](https://osu.ppy.sh/ss/14941908/f8e9)
 
 # [mayoler](https://circle-people.com/wp-content/Skins/Mayoler/Mayoler-2017-08-10.osk)
 ![](https://i.imgur.com/aba5KjL.png)
