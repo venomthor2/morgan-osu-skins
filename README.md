@@ -198,6 +198,10 @@ akia on gatari osu skins poggers
 # [winter diamond](https://asdfasdfasdf.s-ul.eu/EMw5RKNH)
 ![](https://osu.ppy.sh/ss/14941863/23be)
 
+# [last resort](https://asdfasdfasdf.s-ul.eu/nbzz9m5s)
+![](https://osu.ppy.sh/ss/14946601/b836)
+
+
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
 
