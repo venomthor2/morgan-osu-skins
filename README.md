@@ -201,6 +201,8 @@ akia on gatari osu skins poggers
 # [last resort](https://asdfasdfasdf.s-ul.eu/nbzz9m5s)
 ![](https://osu.ppy.sh/ss/14946601/b836)
 
+# [hisui no machi](https://xilver.s-ul.eu/x9p8fyNc)
+![]() 
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
