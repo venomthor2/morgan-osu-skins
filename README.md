@@ -204,6 +204,9 @@ akia on gatari osu skins poggers
 # [hisui no machi](https://xilver.s-ul.eu/x9p8fyNc)
 ![](https://osu.ppy.sh/ss/14957852/5ebf) 
 
+# [imagination and rock on](https://www.reddit.com/r/OsuSkins/comments/gzikg0/std_inugami_korone_by_mikkumix/)
+![](https://osu.ppy.sh/ss/15045569/8ba9)
+
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
 
