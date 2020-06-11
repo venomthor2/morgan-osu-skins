@@ -164,8 +164,8 @@ akia on gatari osu skins poggers
 # [no more](https://www.mediafire.com/file/60ssupzm69007g7/-_femboy_dude_skin_remake.osk/file)
 ![](https://osu.ppy.sh/ss/14648978/701b)
 
-# [star map remake](https://www.mediafire.com/file/uwdm37e99t1u9g4/-_morgan_star_map_.osk/file)
-![](https://osu.ppy.sh/ss/14706758/fd73)
+# [star map remake (thanks snowy for finding the circles)](https://www.mediafire.com/file/9fqfg1273te50hn/wew_lad.osk/file)
+![](https://osu.ppy.sh/ss/15056224/5955)
 
 # [seiken nante iranai](http://puu.sh/FtLE3/314702592d.osk)
 ![](https://osu.ppy.sh/ss/14723989/96e1)
