@@ -170,7 +170,7 @@ akia on gatari osu skins poggers
 # [seiken nante iranai](http://puu.sh/FtLE3/314702592d.osk)
 ![](https://osu.ppy.sh/ss/14723989/96e1)
 
-# [general tso what](https://asdfasdfasdf.s-ul.eu/xSoaq5zr)
+# [general tso what / ray of bullet](https://asdfasdfasdf.s-ul.eu/xSoaq5zr)
 ![](https://osu.ppy.sh/ss/14724067/139f)
 
 # [max love](http://puu.sh/DBGjQ/d8afc09894.osk)
@@ -209,6 +209,10 @@ akia on gatari osu skins poggers
 
 # [concon](https://www.dropbox.com/s/0twdffsc3dkprv7/!YOUTA's%20Otaku%20Skin!.osk?dl=1)
 ![](https://i.imgur.com/ZEZoWed.png)
+
+# [stella-rium](https://circle-people.com/wp-content/Skins/Mathi/Mathi%202017-08-20.osk)
+![](https://osu.ppy.sh/ss/15078392/e700)
+
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
