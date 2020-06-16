@@ -207,6 +207,9 @@ akia on gatari osu skins poggers
 # [imagination and rock on](https://www.reddit.com/r/OsuSkins/comments/gzikg0/std_inugami_korone_by_mikkumix/)
 ![](https://osu.ppy.sh/ss/15045569/8ba9)
 
+# [concon](https://www.dropbox.com/s/0twdffsc3dkprv7/!YOUTA's%20Otaku%20Skin!.osk?dl=1)
+![](https://i.imgur.com/ZEZoWed.png)
+
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
 
