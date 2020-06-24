@@ -213,6 +213,12 @@ akia on gatari osu skins poggers
 # [stella-rium](https://circle-people.com/wp-content/Skins/Mathi/Mathi%202017-08-20.osk)
 ![](https://osu.ppy.sh/ss/15078392/e700)
 
+# [twitter skin 9uihsaf hiuoasih8ounf rasuioh](https://drive.google.com/file/d/1nGR6COeso3_In3YA1PG2fzHI2hqF9AT8/view)
+wait a  bit for screenshot
+
+# [sakura no uta thanks nice guy on discord for the skin](https://www.mediafire.com/file/scqn428ba2ccweh/doki_dt_mix.osk/file
+MediaFire)
+wait a bit for screenshot
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
