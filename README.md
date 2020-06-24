@@ -214,10 +214,10 @@ akia on gatari osu skins poggers
 ![](https://osu.ppy.sh/ss/15078392/e700)
 
 # [twitter skin 9uihsaf hiuoasih8ounf rasuioh](https://drive.google.com/file/d/1nGR6COeso3_In3YA1PG2fzHI2hqF9AT8/view)
-wait a  bit for screenshot
+![](https://osu.ppy.sh/ss/15121990/dbb9)
 
 # [sakura no uta thanks nice guy on discord for the skin](https://www.mediafire.com/file/scqn428ba2ccweh/doki_dt_mix.osk/file)
-wait a bit for screenshot
+![](https://osu.ppy.sh/ss/15122038/eaa1)
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
