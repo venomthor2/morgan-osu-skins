@@ -228,7 +228,7 @@ akia on gatari osu skins poggers
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
 
-also please unblock me on twitter morgan (update: actually keep me blocked)
+if you are a friend of morgan that wants to send me fake or troll skins just give me them all now cuz i literally dont want to waste my fucking time with your shit 
 
 my discord: venomthor2#7999
 thanks alot u/Wonderer0103 for most of the skins i recently added thank you alot 
