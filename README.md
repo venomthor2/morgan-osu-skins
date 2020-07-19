@@ -226,8 +226,7 @@ akia on gatari osu skins poggers
 ![](https://osu.ppy.sh/ss/15233909/62c3)
 
 # [my life is over and i couldn't be happier](https://www.mediafire.com/file/sm97s7sidmsuja2/Nara+5.3.zip/file)
-screenshots are gonna appear later 
-
+![](https://osu.ppy.sh/ss/15246560/768f)
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
 
