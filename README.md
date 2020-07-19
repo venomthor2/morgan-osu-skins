@@ -225,6 +225,9 @@ akia on gatari osu skins poggers
 # [pink lemonade](https://www.dropbox.com/s/s2frd3y79k7rx5t/meow_2.osk?dl=0)
 ![](https://osu.ppy.sh/ss/15233909/62c3)
 
+# [my life is over and i couldn't be happier](https://www.mediafire.com/file/sm97s7sidmsuja2/Nara+5.3.zip/file)
+screenshots are gonna appear later 
+
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
 
