@@ -192,7 +192,7 @@ akia on gatari osu skins poggers
 # [thanks for the skin fembo... i mean morgan](https://drive.google.com/file/d/1lveszkbHqJ6EuVFlF5-4cpC1727-r-Qt/view)
 ![](https://osu.ppy.sh/ss/14905449/6416)
 
-# [uso no hibana](https://puu.sh/x0KnO.osk)
+# [uso no hibana](https://files.catbox.moe/hcy2ot.rar)
 ![](https://osu.ppy.sh/ss/14941804/674b)
 
 # [winter diamond](https://asdfasdfasdf.s-ul.eu/EMw5RKNH)
