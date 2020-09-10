@@ -228,7 +228,7 @@ akia on gatari osu skins poggers
 # [my life is over and i couldn't be happier](https://www.mediafire.com/file/sm97s7sidmsuja2/Nara+5.3.zip/file)
 ![](https://osu.ppy.sh/ss/15246560/768f)
 
-# [idk](https://files.catbox.moe/b3k51x.osk)
+# [lol morgan is dead but this list is still alive](https://files.catbox.moe/b3k51x.osk)
 ![](https://osu.ppy.sh/ss/15525143/e96b)
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
