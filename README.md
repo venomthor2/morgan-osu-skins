@@ -48,7 +48,7 @@ akia on gatari osu skins poggers
 ![](https://i.imgur.com/j4uWDkX.png)
 
 # [blue skin](https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=0)
-![](https://i.imgur.com/QjujhjH.png)
+![](https://osu.ppy.sh/ss/13029693)
 
 # [fangzy](https://drive.google.com/open?id=12pytaT8U290gVwzvZXaSvJnLPrS0RYfX)
 ![](https://i.imgur.com/BKfgTya.png)
