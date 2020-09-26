@@ -201,7 +201,7 @@ akia on gatari osu skins poggers
 # [last resort](https://asdfasdfasdf.s-ul.eu/nbzz9m5s)
 ![](https://osu.ppy.sh/ss/14946601/b836)
 
-# [hisui no machi](https://xilver.s-ul.eu/x9p8fyNc)
+# [hisui no machi](https://drive.google.com/uc?export=download&id=1wW2zQJn2FHaSZKRioSC4bm1OdTmseOgM)
 ![](https://osu.ppy.sh/ss/14957852/5ebf) 
 
 # [imagination and rock on](https://www.reddit.com/r/OsuSkins/comments/gzikg0/std_inugami_korone_by_mikkumix/)
