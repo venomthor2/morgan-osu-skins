@@ -8,7 +8,7 @@ akia on gatari osu skins poggers
 # [- + morgan gray](https://morgan.s-ul.eu/UJzmIsLw)
 ![](https://osu.ppy.sh/ss/14096660/e821)
 
-# ~~[morgan but fyre](https://morgan.s-ul.eu/LyX39Wqy) or [fyree (orange cursor)](https://cdn.discordapp.com/attachments/644258437735251988/644259799852122122/fyree.osk)~~ [original one](https://files.catbox.moe/qnqieb.osk)
+# ~~[morgan but fyre](https://morgan.s-ul.eu/LyX39Wqy) or [fyree (orange cursor)](https://cdn.discordapp.com/attachments/644258437735251988/644259799852122122/fyree.osk)~~ [original one](https://b.catgirlsare.sexy/lT7d43DQ.osk)
 ![](https://osu.ppy.sh/ss/14454795/597f)
 
 # [Reira+Neil morgan](https://morgan.s-ul.eu/v0UFDMSu) thank u wandarerzeroonezerothree (thanks alot u/Wonderer0103) 
@@ -41,13 +41,13 @@ akia on gatari osu skins poggers
 # [smh](https://www.dropbox.com/s/rphc742rg4xc85l/smh.rar?dl=1)
 ![](https://i.imgur.com/OQAiSos.png)
 
-# [green skin](http://puu.sh/DFB0K/faeb561091.osk)
+# [green skin](https://b.catgirlsare.sexy/bwGAEMjC.osk)
 ![](https://i.imgur.com/arIB17V.png)
 
 # [-dddddd- ryuk](http://puu.sh/DD1aK/53a5aa7cc4.osk)
 ![](https://i.imgur.com/j4uWDkX.png)
 
-# [blue skin](https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=0)
+# [blue skin](https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=1)
 ![](https://osu.ppy.sh/ss/13029693)
 
 # [fangzy](https://drive.google.com/open?id=12pytaT8U290gVwzvZXaSvJnLPrS0RYfX)
@@ -62,7 +62,7 @@ akia on gatari osu skins poggers
 # [euphorium liveplay](https://s.put.re/LfAYukHg.osk) 
 ![](https://i.imgur.com/a3CV1yB.png)
 
-# [fighting gold skin](https://s.put.re/7qs4bMvB.osk )
+# [fighting gold](https://s.put.re/7qs4bMvB.osk )
 ![](https://i.imgur.com/0BciGen.png)
 
 # [poppin shower](https://s.put.re/L89DGMeC.osk ) 
@@ -83,7 +83,7 @@ akia on gatari osu skins poggers
 # [sakura no zenya](https://drive.google.com/file/d/1dKTqdCEFZYwfEozV0ztU0Mvf3kjR_Kc-/view)
 ![](https://i.imgur.com/gre8hUF.png)
 
-# [kioku x something something](https://s.put.re/1e3q5GY3.osk)
+# [kioku x something something](https://b.catgirlsare.sexy/xig-nRiZ.osk)
 ![](https://i.imgur.com/QVZ7g6S.png)
 
 # [love your enemies](https://www.mediafire.com/file/1yvl862rv3s2r0j/morgan_remake_updated.osk/file)
@@ -95,7 +95,7 @@ akia on gatari osu skins poggers
 # [versace summer but not remake(thanks dt worst mode on discord for reverse arrow)](https://www.mediafire.com/file/sfse914qnw2ifq9/-+_morgan+tko_blue.osk/file)
 ![](https://i.imgur.com/bW1k4PT.png)
 
-# [another twitter skin](https://www.dropbox.com/s/1suw8i740ng6krv/-%2BAesthetic%201.3.9.osk?dl=0)
+# [another twitter skin](https://www.dropbox.com/s/1suw8i740ng6krv/-%2BAesthetic%201.3.9.osk?dl=1)
 ![](https://osu.ppy.sh/ss/14118234/414e)
 
 # [one in a billion](https://s.put.re/P8YH9jT6.osk)
@@ -134,7 +134,7 @@ akia on gatari osu skins poggers
 # [salvation](https://www.mediafire.com/file/p1h1dt037km8tux/-_Lines_morgan_edit.osk/file)
 ![](https://osu.ppy.sh/ss/14511228/e994)
 
-# [morgan (flor) private skin omg](https://wonderer.s-ul.eu/yJ5l6HvX)
+# [morgan (flor) private skin omg](https://b.catgirlsare.sexy/51QemVHF.osk)
 ![](https://osu.ppy.sh/ss/14517335/72b8)
 
 # [inferno](https://www.reddit.com/r/OsuSkins/comments/f6jck3/std_hdsd_gothic_lolita_fever_inspired_by_the/)
@@ -183,7 +183,7 @@ akia on gatari osu skins poggers
 # [kurui zake setsugekka](https://www.dropbox.com/s/vsqt0s5gq5nahoy/boom%200524%20edit.osk?dl=1)
 ![](https://osu.ppy.sh/ss/14805306/1b05)
 
-# [twitter skin part 3](https://www.dropbox.com/s/w4etxl9p0ta7agn/-%20%2B%20santa%20monica.osk?dl=0)
+# [twitter skin part 3](https://www.dropbox.com/s/w4etxl9p0ta7agn/-%20%2B%20santa%20monica.osk?dl=1)
 ![](https://osu.ppy.sh/ss/14820344/56e3)
 
 # [twitter skin part 4 (thanks @14160 on  twitter for the skin)](https://t.co/xXjDEkCP6X?amp=1)
@@ -213,7 +213,7 @@ akia on gatari osu skins poggers
 # [stella-rium](https://circle-people.com/wp-content/Skins/Mathi/Mathi%202017-08-20.osk)
 ![](https://osu.ppy.sh/ss/15078392/e700)
 
-# [twitter skin 9uihsaf hiuoasih8ounf rasuioh](https://drive.google.com/file/d/1nGR6COeso3_In3YA1PG2fzHI2hqF9AT8/view)
+# [twitter skin 9uihsaf hiuoasih8ounf rasuioh](https://b.catgirlsare.sexy/WFMh7ppG.osk)
 ![](https://osu.ppy.sh/ss/15121990/dbb9)
 
 # [sakura no uta thanks nice guy on discord for the skin](https://www.mediafire.com/file/scqn428ba2ccweh/doki_dt_mix.osk/file)
@@ -222,7 +222,7 @@ akia on gatari osu skins poggers
 # [twitter asdf1234](https://t.co/88Akgs02nG?amp=1)
 ![](https://osu.ppy.sh/ss/15175333/59c7)
 
-# [pink lemonade](https://www.dropbox.com/s/s2frd3y79k7rx5t/meow_2.osk?dl=0)
+# [pink lemonade](https://www.dropbox.com/s/s2frd3y79k7rx5t/meow_2.osk?dl=1)
 ![](https://osu.ppy.sh/ss/15233909/62c3)
 
 # [my life is over and i couldn't be happier](https://www.mediafire.com/file/sm97s7sidmsuja2/Nara+5.3.zip/file)
