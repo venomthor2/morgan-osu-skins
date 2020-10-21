@@ -230,16 +230,10 @@ akia on gatari osu skins poggers
 # [lol morgan is dead but this list is not](https://wonderer.u.catgirlsare.sexy/VLpAiL5J.osk)
 ![](https://osu.ppy.sh/ss/15525143/e96b)
 
-im continuiing the rest of the list later cuz he has lots of fucking skins 
-
-
-if you are a friend of morgan that wants to send me fake or troll skins just give me them all now cuz i literally dont want to waste my fucking time with your shit 
 
 my discord: venomthor2#7999
-thanks alot u/Wonderer0103 for most of the skins i recently added thank you alot 
-just wanting to say that im not the only one to remake the skins just because my discord or the link has my name on it does not mean im the person who put all the skins i put some of them not all of them 
+thanks alot to both my contributors and the ppl who have contacted me on discord to help i appreciate it alot
 
 
-also if some skins that are easy to remake its cuz me (venomthor2) is not remaking due to extreme lazyness 
-
+there are still some morgan skins to remake all i could find to see to remake was one skin so expect a remake of that soon or maybe the actual skin if i find a link idk 
 
