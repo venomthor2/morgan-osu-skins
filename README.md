@@ -230,6 +230,8 @@ akia on gatari osu skins poggers
 # [lol morgan is dead but this list is not](https://wonderer.u.catgirlsare.sexy/VLpAiL5J.osk)
 ![](https://osu.ppy.sh/ss/15525143/e96b)
 
+# [seiken nante iranai but its the actual skin](http://www.mediafire.com/file/kshpwj926n1hloj/-+dream+is+gay.osk/file)
+![](https://osu.ppy.sh/ss/15752529/d64d)
 
 my discord: venomthor2#7999
 thanks alot to both my contributors and the ppl who have contacted me on discord to help i appreciate it alot
