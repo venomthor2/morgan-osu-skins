@@ -20,7 +20,7 @@ akia on gatari osu skins poggers
 # [morgna osu private skin remake](https://www.mediafire.com/file/vmtpg4razibc1sd/-_%21_%23_%21_%23_%21_%23_%21_%23_%21_morgna_osu_private_skin.osk/file)
 ![](https://i.imgur.com/XWFPo5K.png)
 
-# [skin that he published](https://wonderer.u.catgirlsare.sexy/LeQ645-_.osk)
+# [skin that he published](https://drive.google.com/file/d/17K2uVEIP6o0S_u6Z-yndNTrFxdgH62kC/view?usp=drive_open)
 ![](https://i.imgur.com/0vjf2RZ.png)
 
 # [kune skin](http://www.mediafire.com/file/7ffd7h7opdgxpeg/kune259_160601.osk/file)
@@ -41,10 +41,10 @@ akia on gatari osu skins poggers
 # [smh](https://wonderer.u.catgirlsare.sexy/S9sfaHwB.osk)
 ![](https://i.imgur.com/OQAiSos.png)
 
-# [green skin](https://b.catgirlsare.sexy/bwGAEMjC.osk)
+# [green skin](http://puu.sh/DFB0K/faeb561091.osk)
 ![](https://i.imgur.com/arIB17V.png)
 
-# [-dddddd- ryuk](https://wonderer.u.catgirlsare.sexy/sPonIAH_.osk)
+# [-dddddd- ryuk](http://puu.sh/DD1aK/53a5aa7cc4.osk)
 ![](https://i.imgur.com/j4uWDkX.png)
 
 # [blue skin](https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=1)
