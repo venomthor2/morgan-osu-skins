@@ -77,7 +77,7 @@ akia on gatari osu skins poggers
 # [outbreak](https://wonderer.u.catgirlsare.sexy/wLlDdcu7.osk)
 ![](https://i.imgur.com/bOnfM6c.png)
 
-# [palette gamma liveplay](https://wonderer.u.catgirlsare.sexy/f6KIEysv.osk)
+# [palette gamma liveplay](https://skins.osuck.net/index.php?newsid=291)
 ![](https://i.imgur.com/YOFKy1w.png)
 
 # [sakura no zenya](https://drive.google.com/file/d/1dKTqdCEFZYwfEozV0ztU0Mvf3kjR_Kc-/view)
