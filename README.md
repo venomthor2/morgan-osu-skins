@@ -1,5 +1,5 @@
 # morgan-osu-skins
-akia on gatari osu skins poggers
+akia on gatari osu skins poggers (if a link does not work it is because one of the download things we use is down) 
 # please keep in mind that some of them are remakes
 
 # [- + morgan red](https://morgan.s-ul.eu/hHfDd2fD)
