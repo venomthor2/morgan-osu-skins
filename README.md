@@ -32,13 +32,13 @@ akia on gatari osu skins poggers (if a link does not work it is because one of t
 # [mayoler](https://circle-people.com/wp-content/Skins/Mayoler/Mayoler-2017-08-10.osk)
 ![](https://i.imgur.com/aba5KjL.png)
 
-# [uberlangen](https://wonderer.u.catgirlsare.sexy/lLKMq1Xp.osk)
+# [uberlangen](https://b.catgirlsare.sexy/lLKMq1Xp.osk)
 ![](https://i.imgur.com/XXXMtHu.png)
 
 # [rafis elohere](https://skins.osuck.net/index.php?newsid=164)
 ![](https://i.imgur.com/CodCQkm.png)
 
-# [smh](https://wonderer.u.catgirlsare.sexy/S9sfaHwB.osk)
+# [smh](https://b.catgirlsare.sexy/S9sfaHwB.osk)
 ![](https://i.imgur.com/OQAiSos.png)
 
 # [green skin](http://puu.sh/DFB0K/faeb561091.osk)
@@ -50,7 +50,7 @@ akia on gatari osu skins poggers (if a link does not work it is because one of t
 # [blue skin](https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=1)
 ![](https://osu.ppy.sh/ss/13029693)
 
-# [fangzy](https://wonderer.u.catgirlsare.sexy/a21Tuosk.osk)
+# [fangzy](https://b.catgirlsare.sexy/a21Tuosk.osk)
 ![](https://i.imgur.com/BKfgTya.png)
 
 # [hvick225](https://circle-people.com/wp-content/Skins/hvick225/hvick-2017-08-10.rar)
@@ -59,22 +59,22 @@ akia on gatari osu skins poggers (if a link does not work it is because one of t
 # [his twitter skin (thank you amity for circles and numbers)](https://www.mediafire.com/file/9g3y0kcf88ue85h/-_morgan_twitter_skin_remake_by_venomthor2_updated.osk/file)
 ![](https://i.imgur.com/knVA5Em.png)
 
-# [euphorium liveplay](https://wonderer.u.catgirlsare.sexy/QvtmGS29.osk) 
+# [euphorium liveplay](https://b.catgirlsare.sexy/QvtmGS29.osk) 
 ![](https://i.imgur.com/a3CV1yB.png)
 
-# [fighting gold](https://wonderer.u.catgirlsare.sexy/1ECJEwKd.osk)
+# [fighting gold](https://b.catgirlsare.sexy/1ECJEwKd.osk)
 ![](https://i.imgur.com/0BciGen.png)
 
-# [poppin shower](https://wonderer.u.catgirlsare.sexy/OoWAr79Q.osk) 
+# [poppin shower](https://b.catgirlsare.sexy/OoWAr79Q.osk) 
 ![](https://i.imgur.com/KCOMG8c.png)
 
-# [nanario](https://wonderer.u.catgirlsare.sexy/ljKWkX8C.osk)
+# [nanario](https://b.catgirlsare.sexy/ljKWkX8C.osk)
 ![](https://i.imgur.com/ZQOskyr.png)
 
 # [love bbb](https://cdn.discordapp.com/attachments/644258437735251988/644258866573344769/404_Skin_Not_Found.osk)
 ![](https://i.imgur.com/SyEqGzb.png)
 
-# [outbreak](https://wonderer.u.catgirlsare.sexy/wLlDdcu7.osk)
+# [outbreak](https://b.catgirlsare.sexy/wLlDdcu7.osk)
 ![](https://i.imgur.com/bOnfM6c.png)
 
 # [palette gamma liveplay](https://skins.osuck.net/index.php?newsid=291)
@@ -89,7 +89,7 @@ akia on gatari osu skins poggers (if a link does not work it is because one of t
 # [love your enemies](https://www.mediafire.com/file/1yvl862rv3s2r0j/morgan_remake_updated.osk/file)
 ![](https://i.imgur.com/MgLVz9V.png)
 
-# [versace summer original one thx slushy](https://wonderer.u.catgirlsare.sexy/NxJp_vM_.osk)
+# [versace summer original one thx slushy](https://b.catgirlsare.sexy/NxJp_vM_.osk)
 ![](https://i.imgur.com/iay8wOm.png)
 
 # [versace summer but not remake(thanks dt worst mode on discord for reverse arrow)](https://www.mediafire.com/file/sfse914qnw2ifq9/-+_morgan+tko_blue.osk/file)
@@ -98,16 +98,16 @@ akia on gatari osu skins poggers (if a link does not work it is because one of t
 # [another twitter skin](https://www.dropbox.com/s/1suw8i740ng6krv/-%2BAesthetic%201.3.9.osk?dl=1)
 ![](https://osu.ppy.sh/ss/14118234/414e)
 
-# [one in a billion](https://wonderer.u.catgirlsare.sexy/KogVblOw.osk)
+# [one in a billion](https://b.catgirlsare.sexy/KogVblOw.osk)
 ![](https://i.imgur.com/o601t3O.png)
 
 # [choir jail pls wonderer or snowy add screenshots im at school rn](https://circle-people.com/wp-content/Skins/hvick225/hvick225%202016-12-3%20--Dare.osk)
 ![](https://i.imgur.com/aiAG1sw.png)
 
-# [yoake no bell ga naru](https://wonderer.u.catgirlsare.sexy/CDpDUjgI.osk)
+# [yoake no bell ga naru](https://b.catgirlsare.sexy/CDpDUjgI.osk)
 ![](https://i.imgur.com/qGWZlIT.png)
 
-# [humanly](https://wonderer.u.catgirlsare.sexy/6oF3aLNe.osk)
+# [humanly](https://b.catgirlsare.sexy/6oF3aLNe.osk)
 ![](https://osu.ppy.sh/ss/14249615/b5cb)
 
 # [spark of the archon](https://circle-people.com/wp-content/Skins/Aireu%20(lain)/Aireu%202019-11-20.osk) 
@@ -119,7 +119,7 @@ akia on gatari osu skins poggers (if a link does not work it is because one of t
 # [twitter skin](https://drive.google.com/open?id=1ORmpBBZ8Oa3vWAdJGaXvaKKIS9hTz1fZ)
 ![](https://osu.ppy.sh/ss/14420055/2499)
 
-# [bird sprite](https://wonderer.u.catgirlsare.sexy/opQZQ-Wy.osk)
+# [bird sprite](https://b.catgirlsare.sexy/opQZQ-Wy.osk)
 ![](https://osu.ppy.sh/ss/14370478/24b0) 
 
 # [rinne](https://asdfasdfasdf.s-ul.eu/mn0qLlDT)
@@ -140,7 +140,7 @@ akia on gatari osu skins poggers (if a link does not work it is because one of t
 # [inferno](https://www.reddit.com/r/OsuSkins/comments/f6jck3/std_hdsd_gothic_lolita_fever_inspired_by_the/)
 ![](https://osu.ppy.sh/ss/14517334/4020)
 
-# [dramatic cycle](https://wonderer.u.catgirlsare.sexy/lujCCXjU.osk)
+# [dramatic cycle](https://b.catgirlsare.sexy/lujCCXjU.osk)
 ![](https://osu.ppy.sh/ss/14526957/e354)
 
 # [silhouette](https://asdfasdfasdf.s-ul.eu/rtCz5khK)
@@ -167,13 +167,13 @@ akia on gatari osu skins poggers (if a link does not work it is because one of t
 # [star map remake (thanks snowy for finding the circles)](https://www.mediafire.com/file/9fqfg1273te50hn/wew_lad.osk/file)
 ![](https://osu.ppy.sh/ss/15056224/5955)
 
-# [seiken nante iranai](https://wonderer.u.catgirlsare.sexy/hnTomTS0.osk)
+# [seiken nante iranai](https://b.catgirlsare.sexy/hnTomTS0.osk)
 ![](https://osu.ppy.sh/ss/14723989/96e1)
 
 # [general tso what / ray of bullet](https://asdfasdfasdf.s-ul.eu/xSoaq5zr)
 ![](https://osu.ppy.sh/ss/14724067/139f)
 
-# [max love](https://wonderer.u.catgirlsare.sexy/uz0ILqlu.osk)
+# [max love](https://b.catgirlsare.sexy/uz0ILqlu.osk)
 ![](https://osu.ppy.sh/ss/13314129)
 
 # [sakura reincarnation](https://cdn.discordapp.com/attachments/427214130756452353/697696460267061319/boop.osk)
@@ -185,13 +185,13 @@ akia on gatari osu skins poggers (if a link does not work it is because one of t
 # [twitter skin part 3](https://www.dropbox.com/s/w4etxl9p0ta7agn/-%20%2B%20santa%20monica.osk?dl=1)
 ![](https://osu.ppy.sh/ss/14820344/56e3)
 
-# [twitter skin part 4 (thanks @14160 on  twitter for the skin)](https://wonderer.u.catgirlsare.sexy/t_momdVX.osk)
+# [twitter skin part 4 (thanks @14160 on  twitter for the skin)](https://b.catgirlsare.sexy/t_momdVX.osk)
 ![](https://osu.ppy.sh/ss/14820334/8779)
 
 # [thanks for the skin fembo... i mean morgan](https://drive.google.com/file/d/1lveszkbHqJ6EuVFlF5-4cpC1727-r-Qt/view)
 ![](https://osu.ppy.sh/ss/14905449/6416)
 
-# [uso no hibana](https://wonderer.u.catgirlsare.sexy/Kobl0GTQ.osk)
+# [uso no hibana](https://b.catgirlsare.sexy/Kobl0GTQ.osk)
 ![](https://osu.ppy.sh/ss/14941804/674b)
 
 # [winter diamond](https://asdfasdfasdf.s-ul.eu/EMw5RKNH)
@@ -227,7 +227,7 @@ akia on gatari osu skins poggers (if a link does not work it is because one of t
 # [my life is over and i couldn't be happier](https://www.mediafire.com/file/sm97s7sidmsuja2/Nara+5.3.zip/file)
 ![](https://osu.ppy.sh/ss/15246560/768f)
 
-# [lol morgan is dead but this list is not](https://wonderer.u.catgirlsare.sexy/VLpAiL5J.osk)
+# [lol morgan is dead but this list is not](https://b.catgirlsare.sexy/VLpAiL5J.osk)
 ![](https://osu.ppy.sh/ss/15525143/e96b)
 
 # [seiken nante iranai but its the actual skin](http://www.mediafire.com/file/kshpwj926n1hloj/-+dream+is+gay.osk/file)
