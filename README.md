@@ -233,6 +233,9 @@ akia on gatari osu skins poggers (if a link does not work it is because one of t
 # [seiken nante iranai but its the actual skin](http://www.mediafire.com/file/kshpwj926n1hloj/-+dream+is+gay.osk/file)
 ![](https://osu.ppy.sh/ss/15752529/d64d)
 
+# [SAIMONEA SKIN](https://b.catgirlsare.sexy/UkmvWOWM.osk)
+![](https://i.imgur.com/WlhEUCy.png)
+
 my discord: venomthor2#7999
 thanks alot to both my contributors and the ppl who have contacted me on discord to help i appreciate it alot
 
