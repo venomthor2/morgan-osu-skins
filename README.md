@@ -2,6 +2,9 @@
 akia on gatari osu skins poggers (if a link does not work it is because one of the download things we use is down) 
 # please keep in mind that some of them are remakes
 
+also just saying that b.catgirlsare.sexy (yes its the name of the link lol) sometimes goes down so yeah if u rly want the skin instead of waiting dm me or smth and 
+pray that i still have the skin or not 
+
 # [- + morgan red](https://morgan.s-ul.eu/hHfDd2fD)
 ![](https://osu.ppy.sh/ss/14096632/2672)
  
@@ -140,7 +143,7 @@ akia on gatari osu skins poggers (if a link does not work it is because one of t
 # [inferno](https://www.reddit.com/r/OsuSkins/comments/f6jck3/std_hdsd_gothic_lolita_fever_inspired_by_the/)
 ![](https://osu.ppy.sh/ss/14517334/4020)
 
-# [dramatic cycle](https://b.catgirlsare.sexy/lujCCXjU.osk)
+# [dramatic cycle](https://suckydongdong.s-ul.eu/e5l2l6LG)
 ![](https://osu.ppy.sh/ss/14526957/e354)
 
 # [silhouette](https://asdfasdfasdf.s-ul.eu/rtCz5khK)
@@ -167,7 +170,7 @@ akia on gatari osu skins poggers (if a link does not work it is because one of t
 # [star map remake (thanks snowy for finding the circles)](https://www.mediafire.com/file/9fqfg1273te50hn/wew_lad.osk/file)
 ![](https://osu.ppy.sh/ss/15056224/5955)
 
-# [seiken nante iranai](https://b.catgirlsare.sexy/hnTomTS0.osk)
+# [seiken nante iranai](https://www.mediafire.com/file/mxoyjcsbbgh494l/-+seiken+irante+whatever+idk.osk/file)
 ![](https://osu.ppy.sh/ss/14723989/96e1)
 
 # [general tso what / ray of bullet](https://asdfasdfasdf.s-ul.eu/xSoaq5zr)
